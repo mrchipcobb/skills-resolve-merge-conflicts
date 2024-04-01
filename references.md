@@ -1,3 +1,6 @@
-# References
+conflict this you SOB.
+Trying to 
+make our work very
+Difficult
 
-* octocat 1 😈
+Lorem Ipsum said the * octocat 1 😈
